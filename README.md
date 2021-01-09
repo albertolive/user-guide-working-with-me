@@ -1,5 +1,4 @@
-# user-guide-working-with-me
-A User Guide To Working With Albert Olivé
+# A User Guide To Working With Albert Olivé
 
 I’m delighted to be working with you! And I’m excited about all we’ll learn from each other! I already have high expectations that our collaboration together will yield some wonderful things :) That said, we are unique people shaped by our respective life experiences, and we likely have different preferences and styles for how we like to work. 
 
